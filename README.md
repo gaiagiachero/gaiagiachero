@@ -9,4 +9,3 @@ Sono una ragazza di 17 anni, mi piace l'informatica e la matematica.
 - 💬 non c'è molto da sapere su di me, sono molto riservata.
 - 📫 email. gaia.giachero@iismajoranamoncalieri.edu.it
 - ⚡ mi piace la musica, guardare film e serie tv, leggere, scrivere, andare in montagna 🗻 e stare all'aria aperta.
--->
